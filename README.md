@@ -1,4 +1,11 @@
+# Bootstrap To Pease
+
+## A comprehensive step-by-step guide on how to stop the war in Ukraine, by conceptual isolation of all the war criminals and providing them a narrow controlled choice between full amnesty and total termination
+
 ### Hi there 👋
+
+This is a just started project.
+
 
 <!--
 **bootstrap-to-peace/bootstrap-to-peace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
