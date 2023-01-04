@@ -1,6 +1,6 @@
 # Bootstrap To Pease
 
-## A comprehensive step-by-step guide on how to stop the war in Ukraine, by conceptual isolation of all the war criminals and providing them a narrow controlled choice between full amnesty and total termination
+## A comprehensive step-by-step guide on how to stop the war in Ukraine, by conceptual isolation of all the war criminals and providing them a narrow guaranteed choice between full amnesty and total termination
 
 ### Hi there 👋
 
